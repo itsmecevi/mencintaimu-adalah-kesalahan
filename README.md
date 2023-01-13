@@ -1,8 +1,10 @@
-# mencintaimu-adalah-kesalahan
+# JIKA
 
-### **"Mencintaimu adalah sebuah kesalahan"**
+### **"JIKA"**
 Jika mencintaimu adalah sebuah kesalahan, 
 
 maka biarkan aku melakukan kesalahan yang sama,
 
 lagi dan seterusnya...
+
+by: itsmecevi.github.io
